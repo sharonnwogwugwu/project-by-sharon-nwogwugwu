@@ -1,4 +1,4 @@
-**# Hi, I’m Sharon 👋
+# Hi, I’m Sharon 👋
 
 Marketing graduate from the University of Texas at Dallas with experience in market research, digital marketing, content creation, and client communication. I’m passionate about combining creativity with strategy to build engaging campaigns, meaningful user experiences, and data-driven solutions.
 
